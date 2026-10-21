@@ -13,5 +13,5 @@
 
 ## Контакты
 
-* Электронная почта: ismagilovcamat@yandex.ru
+* Электронная почта: samatis2003@gmail.com
 * Telegram: t.me/magmatiss
